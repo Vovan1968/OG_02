@@ -1,8 +1,8 @@
-##**PUNK IPA**##
+## **PUNK IPA** ##
 
-###CAN'T GO WRONG###
+### CAN'T GO WRONG ###
 
-####***FOR ANY AND ALL BEERY OCCASIONS***#### <br/>
+#### FOR ANY AND ALL BEERY OCCASIONS  <br/>
 The beer that started it all is here to please one and all, whatever the occasion and whoever’s coming to the table. Whether you’re getting your dad to experiment or keeping hipsters happy, grab hold of Punk IPA.
 
 1. ***Bold***.
